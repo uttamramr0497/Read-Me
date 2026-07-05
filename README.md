@@ -25,3 +25,5 @@ Equity Research, Business Analytics, and Risk Advisory
 
 ## 📫 Reach me
 [LinkedIn](https://www.linkedin.com/in/uttamramr0497/)
+[Twitter](https://x.com/uttamramr0497)
+[Instagram](https://www.instagram.com/uttamramr0497/)
